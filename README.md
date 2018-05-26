@@ -11,6 +11,6 @@ Visit [https://ZeroLionBolt.github.io/PineappleX](https://ZeroLionBolt.github.io
 
 And remember, my name is Diego.
 
-JOIN THE PINEAPPLE X FINANCIAL GROUP AT [https://ZeroLionBolt.github.io/PinappleXFinancing](https://ZeroLionBolt.github.io/PinappleXFinancing)
+JOIN THE PINEAPPLE X FINANCIAL GROUP AT [https://ZeroLionBolt.github.io/PineappleXFinancing](https://ZeroLionBolt.github.io/PineappleXFinancing)
 
 FREE OF ADMISSION!
